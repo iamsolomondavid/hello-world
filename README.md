@@ -6,3 +6,4 @@
 "I am currently (as at when i wrote this) well versed i would say in the first part(HTML and CSS) of Frontend development, i guess you can call me a junior developer?"
 "I think that is about all you should know about me, and least i forget "There is no other name in Heaven above or in Earth below by which man can be saved, except by the name of Jesus" (ACT 4 VS 12)
 fxvsxbjdxkkdkb,j.j,bfvhdbxdf.k,bxj.dfkm
+sdgjvsdkzjbs.fkz,j.sdjbz. shbvhsbvskhbsbzjshkgvs
